@@ -25,8 +25,8 @@
 	
 	I am watching this for the 3rd time, trying to understand how this large group of capitalist pigs could royally screw their families, descendants, neighbors, countrymen and the rest of the whole world with absolutely no compassion.
 	
-	Prepared by: Your Name
-	Date: Today's Date
+	Prepared by: Deep Patel
+	Date: 03/06/2020
 	
 </body>
 </html>
